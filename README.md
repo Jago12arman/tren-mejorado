@@ -1,2 +1,0 @@
-# tren-mejorado
-Más rapido
